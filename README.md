@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Annick71
-- 👀 I’m interested in ...plants
+- 👀 I’m interested in ...music
 - 🌱 I’m currently learning ...about plants
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ...the calender
 - 📫 How to reach me ...032477095929
 
 <!---
